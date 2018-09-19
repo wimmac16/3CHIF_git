@@ -1,1 +1,0 @@
-Ich habe am 16.05 Geburtstag!
